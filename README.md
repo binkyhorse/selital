@@ -29,8 +29,9 @@ http://scchristiania.ch/html/clubhaus.html
 - Sonja, Jonas, Mara, Julian
 - Patrizia, Adi, Nico, Ellen
 - Denise, Chris, Ari
+- Special guests: Nicole, Dani, Lionel
 
-Total: 9 Erwachsene, 6 Kinder
+Total: 11 Erwachsene, 7 Kinder
 
 ## COVID-19: Massnahmen des Vermieters
 - Jeder Gast bringt einen persönlichen Kissenanzug mit
