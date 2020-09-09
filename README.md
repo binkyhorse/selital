@@ -39,11 +39,11 @@ Total: 9 Erwachsene, 6 Kinder
 
 
 ## Wer bringt was mit (Essen und Getränke für 9E + 6K)
-- Fr. Abendessen: Chris und Denise (Salat, Risotto oder Polenta, Wein)
-- Sa. Frühstück:
+- Fr. Abendessen:
+- Sa. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: 
 - Sa. Mittagessen zum Mitnehmen:
 - Sa. Abendessen:
-- So. Frühstück:
+- So. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: 
 
 
 ## Infrastruktur
