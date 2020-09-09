@@ -36,8 +36,6 @@ Total: 9 Erwachsene, 6 Kinder
 - Jeder Gast bringt einen persönlichen Kissenanzug mit
 - Jeder Gast muss einen Schlafsack haben
 - Die Abwasch- und Handtücher müssen selber mitgebracht werden -> Bitte alle etwas mitbringen (Tüechli zum Abtrocknen, Küchenlappen).
-- Die Anzahl Gäste ist bis auf weiteres auf 20 Personen beschränkt
-- In der Hütte gelten die aktuellen BAG-Regeln
 
 
 ## Wer bringt was mit (Essen, 9E + 6K)
