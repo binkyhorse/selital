@@ -5,9 +5,10 @@ Selital,  18.-20. Sep. 2020
 http://scchristiania.ch/html/clubhaus.html
 
 
-- Es besteht keine Zufahrt bis zum Haus. Im Sommer ist das Haus über einen Wanderweg erreichbar (ca. 10 Gehminuten)
+## Anreise
 - http://scchristiania.ch/html/lage.html
-- Wie gelangt man zum Haus (öV/Auto): Info folgt
+- öV: Poschi fährt am Freitag nicht bis nach Rüschegg. Ich kann euch in Guggisberg oder Schwarzenburg abholen am Freitag, bitte meldet euch bei Bedarf frühzeitig, damit wir koordinieren können.
+- Auto: es besteht keine Zufahrt bis zum Haus. Im Sommer ist das Haus über einen Wanderweg erreichbar (ca. 10 Gehminuten). Genaue Infos, wo ihr parkieren könnt, folgen am 16. Sep.
 	
 Bitte 1-Fränkler mitnehmen für Duschen
 
@@ -31,7 +32,7 @@ Total: 9 Erwachsene, 6 Kinder
 
 
 ## Wer bringt was mit (Essen, 9E + 6K)
-- FR Abendessen:
+- FR Abendessen: Chris und Denise (Salat, Risotto oder Polenta)
 - SA Frühstück:
 - SA Mittagessen zum Mitnehmen:
 - SA Abendessen:
