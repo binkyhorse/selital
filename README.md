@@ -9,10 +9,6 @@ http://scchristiania.ch/html/clubhaus.html
 - http://scchristiania.ch/html/lage.html
 - öV: Poschi fährt am Freitag nicht bis nach Rüschegg. Ich kann euch in Guggisberg oder Schwarzenburg abholen am Freitag, bitte meldet euch bei Bedarf frühzeitig, damit wir koordinieren können.
 - Auto: es besteht keine Zufahrt bis zum Haus. Im Sommer ist das Haus über einen Wanderweg erreichbar (ca. 10 Gehminuten). Genaue Infos, wo ihr parkieren könnt, folgen am 16. Sep.
-	
-Bitte 1-Fränkler mitnehmen für Duschen
-
-
 
 ## Anmeldeliste
 - Michel
@@ -39,8 +35,9 @@ Total: 9 Erwachsene, 6 Kinder
 - SO Frühstück:
 
 
-
 ## Infrastruktur
+Bitte genügend 1-Fränkler mitnehmen für Duschen
+
 Vorhanden sind:
 - Holz (Heizen/Kochen)
 - Strom, Wasser
