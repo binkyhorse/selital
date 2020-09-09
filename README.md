@@ -38,8 +38,8 @@ Total: 9 Erwachsene, 6 Kinder
 - Die Abwasch- und Handtücher müssen selber mitgebracht werden -> Bitte alle etwas mitbringen (Tüechli zum Abtrocknen, Küchenlappen).
 
 
-## Wer bringt was mit (Essen, 9E + 6K)
-- Fr. Abendessen: Chris und Denise (Salat, Risotto oder Polenta)
+## Wer bringt was mit (Essen und Getränke für 9E + 6K)
+- Fr. Abendessen: Chris und Denise (Salat, Risotto oder Polenta, Wein)
 - Sa. Frühstück:
 - Sa. Mittagessen zum Mitnehmen:
 - Sa. Abendessen:
