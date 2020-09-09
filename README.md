@@ -24,11 +24,11 @@ http://scchristiania.ch/html/clubhaus.html
 - Auto: es besteht keine Zufahrt bis zum Haus. Im Sommer ist das Haus über einen Wanderweg erreichbar (ca. 10 Gehminuten). Genaue Infos, wo ihr parkieren könnt, folgen am 16. Sep.
 
 ## Anmeldeliste
-- Michel (öV, bspw. ca. 15.40h in Schwarzenburg)
+- Michel (öV Fr., bspw. ca. 15.40h in Schwarzenburg)
 - Carole, Sämi, Gil (öV, ca. wie Michel, evtl. zusammen)
 - Sonja, Jonas, Mara, Julian
 - Patrizia, Adi, Nico, Ellen (Auto, Fr. 15-16h)
-- Denise, Chris, Ari (Auto)
+- Denise, Chris, Ari (Auto, Fr. Mittag)
 - Special guests: Nicole, Dani, Lionel (Auto)
 
 Total: 11 Erwachsene, 7 Kinder
