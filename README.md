@@ -28,11 +28,11 @@ Total: 9 Erwachsene, 6 Kinder
 
 
 ## Wer bringt was mit (Essen, 9E + 6K)
-- FR Abendessen: Chris und Denise (Salat, Risotto oder Polenta)
-- SA Frühstück:
-- SA Mittagessen zum Mitnehmen:
-- SA Abendessen:
-- SO Frühstück:
+- Fr. Abendessen: Chris und Denise (Salat, Risotto oder Polenta)
+- Sa. Frühstück:
+- Sa. Mittagessen zum Mitnehmen:
+- Sa. Abendessen:
+- So. Frühstück:
 
 
 ## Infrastruktur
@@ -54,8 +54,7 @@ Skihaus reinigen vor Abreise, so verlassen, wie man es gerne antreffen würde
 
 Bezahlen für Übernachtung: CHF 20 / Erwachsener / Nacht; 12 / Kind / Nacht; Überweisen an Chris, Infos folgen
 
-Link für Fotos folgt hier
-
 ## Admin-Infos für Chris
 - Rest. Selital 031 735 57 70 (Schlüsselübergabe)
 - Toni Hubschmid 079 762 30 17
+- Link für Fotos folgt
