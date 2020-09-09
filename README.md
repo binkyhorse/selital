@@ -27,7 +27,7 @@ http://scchristiania.ch/html/clubhaus.html
 - Michel (öV, bspw. ca. 15.40h in Schwarzenburg)
 - Carole, Sämi, Gil (öV, ca. wie Michel, evtl. zusammen)
 - Sonja, Jonas, Mara, Julian
-- Patrizia, Adi, Nico, Ellen
+- Patrizia, Adi, Nico, Ellen (Auto, Fr. 15-16h)
 - Denise, Chris, Ari (Auto)
 - Special guests: Nicole, Dani, Lionel (Auto)
 
@@ -41,10 +41,13 @@ Total: 11 Erwachsene, 7 Kinder
 
 ## Wer bringt was mit (Essen und Getränke für 11E + 6K)
 - Fr. Abendessen: 
-- Sa. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: 
+- Sa. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
 - Sa. Mittagessen zum Mitnehmen:
 - Sa. Abendessen: CarSam
-- So. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: 
+- So. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
+
+## Q&A:
+- Ist der Weg zur Hütte kinderwagentauglich? -> Kläre ich ab.
 
 
 ## Infrastruktur
