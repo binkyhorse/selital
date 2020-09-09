@@ -5,10 +5,10 @@ Liebe alle
 
 Ich habe hier mal erste Infos zum Selital zusammengefasst. Ich gehe am 16. hoch und lasse mir alles zeigen, dann kommen nochmal Infos. Zur Koordination wäre ich froh, wenn ihr (gerne in die WhatsApp-Gruppe) schreiben könntet,
 
-- wann ihr etwa anreist
+- wann ihr etwa anreist,
 - falls ihr mit dem öV kommt: ob ich euch abolen soll (s. Anreise), 
-- wann und was ihr gerne kochen würdet
-- was ihr noch wissen möchtet
+- wann und was ihr gerne kochen würdet,
+- was ihr noch wissen möchtet.
 
 
 ## Infos zur Hütte
