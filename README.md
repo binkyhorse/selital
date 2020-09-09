@@ -39,7 +39,7 @@ Total: 11 Erwachsene, 7 Kinder
 - Die Abwasch- und Handtücher müssen selber mitgebracht werden -> Bitte alle etwas mitbringen (Tüechli zum Abtrocknen, Küchenlappen).
 
 
-## Wer bringt was mit (Essen und Getränke für 9E + 6K)
+## Wer bringt was mit (Essen und Getränke für 11E + 6K)
 - Fr. Abendessen:
 - Sa. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: 
 - Sa. Mittagessen zum Mitnehmen:
