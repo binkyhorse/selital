@@ -26,7 +26,7 @@ http://scchristiania.ch/html/clubhaus.html
 ## Anmeldeliste
 - Michel (öV Fr., bspw. ca. 15.40h in Schwarzenburg)
 - Carole, Sämi, Gil (öV, ca. wie Michel, evtl. zusammen)
-- Sonja, Jonas, Mara, Julian
+- Sonja, Jonas, Mara, Julian (Auto, Fr. Abend eher spät)
 - Patrizia, Adi, Nico, Ellen (Auto, Fr. 15-16h)
 - Denise, Chris, Ari (Auto, Fr. Mittag)
 - Special guests: Nicole, Dani, Lionel (Auto)
