@@ -43,7 +43,7 @@ Total: 11 Erwachsene, 7 Kinder
 - Fr. Abendessen: 
 - Sa. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
 - Sa. Mittagessen zum Mitnehmen: Michel
-- Sa. Abendessen: CarSam
+- Sa. Abendessen: CarSam (oder Fr., ginge auch)
 - So. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
 
 ## Q&A:
