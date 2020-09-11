@@ -40,10 +40,10 @@ Total: 11 Erwachsene, 7 Kinder
 
 
 ## Wer bringt was mit (Essen und Getränke für 11E + 6K)
-- Fr. Abendessen: 
+- Fr. Abendessen: CarSam
 - Sa. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
 - Sa. Mittagessen zum Mitnehmen: Michel
-- Sa. Abendessen: CarSam (oder Fr., ginge auch)
+- Sa. Abendessen: SonJon
 - So. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
 
 ## Q&A:
