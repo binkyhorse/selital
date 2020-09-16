@@ -21,7 +21,7 @@ http://scchristiania.ch/html/clubhaus.html
 ## Anreise
 - http://scchristiania.ch/html/lage.html
 - öV: Poschi fährt am Freitag nicht bis nach Rüschegg. Ich kann euch in Guggisberg oder Schwarzenburg abholen am Freitag, bitte meldet euch bei Bedarf frühzeitig, damit wir koordinieren können.
-- Auto: es besteht keine Zufahrt bis zum Haus. Im Sommer ist das Haus über einen Wanderweg erreichbar (ca. 10 Gehminuten). Genaue Infos, wo ihr parkieren könnt, folgen am 16. Sep.
+- Auto: es besteht keine Zufahrt bis zum Haus. Im Sommer ist das Haus über einen Wanderweg erreichbar (ca. 10 Gehminuten). Anreise Schwarzenburg > Riffenmatt > Schwarzenbühl. Bitte parkieren beim [Langlaufzentrum Gantrisch](https://www.google.com/maps/place/Langlaufzentrum+Gantrisch/@46.7399669,7.3910523,433m/data=!3m1!1e3!4m5!3m4!1s0x478e5b850551b9e1:0xd4e23e376bec6be2!8m2!3d46.7384916!4d7.3924265). Danach Fussweg, ca. 10 Minuten ohne Kinder. 
 
 ## Anmeldeliste
 - Michel (öV Fr., bspw. ca. 15.40h in Schwarzenburg)
