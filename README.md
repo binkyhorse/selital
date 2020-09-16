@@ -68,8 +68,9 @@ Vorhanden sind:
 
 
 ## Nicht vergessen
-- Haushaltspapier, Lumpen, Küchentücher
+- Lumpen, Küchentücher
 - Toilettenpapier
+- (Leintuch), Schlafsack, Kissenbezug, Duschtüechli
 - Chris: Checkliste
 
 ## Putzen
