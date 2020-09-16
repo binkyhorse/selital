@@ -1,20 +1,11 @@
 # selital
 Selital,  18.-20. Sep. 2020
 
-Liebe alle
-
-Ich habe hier mal erste Infos zum Selital zusammengefasst. Ich gehe am 16. hoch und lasse mir alles zeigen, dann kommen nochmal Infos. Zur Koordination wäre ich froh, wenn ihr (gerne in die WhatsApp-Gruppe) schreiben könntet,
-
-- wann ihr etwa anreist,
-- falls ihr mit dem öV kommt: ob ich euch abolen soll (s. Anreise), 
-- wann und was ihr gerne kochen würdet (s. unten),
-- was ihr noch wissen möchtet (gerne vor dem 16. fragen).
-
 Ich freue mich sehr auf unser Weekend. Ich hoffe, dass ihr alle gesund seid und Lust habt in's Selital zu kommen. Wenn jemand nicht mehr hochkommen möchte, bitte meldet euch so bald wie möglich. Sonst gehe ich davon aus, dass wir uns bald sehen.
 
 Chris
 
-## Wichtige neue Infos vom 16. Sep.
+## Neue Infos vom 16. Sep.
 - Habe Anreise im Detail beschrieben.
 - Es wäre sehr gemütlich, am Samstag eine kleine Wanderung zu machen und an einer Grillstelle eine Rast zu machen und z'Mittag zu essen. Michel, könnest Du bitte so einkaufen für Sa. Mittag? Evtl. auch noch ein paar Würste und Cervelats für den Grill? Wenn Du mit CarSam ankommst, helfen sie sicher einkaufen in Schwarzenburg.
 - Es hat keine Gewürze in der Hütte. Ich bringe Zucker, Salz und Pfeffer. Bitte bringt alles, was ihr für euer Essen braucht, selber mit.
@@ -63,7 +54,7 @@ Total: 11 Erwachsene, 7 Kinder
 - So. Frühstück: Chris bäckt Brot + Züpfe für alle, Rest: AdiPat
 
 ## Q&A:
-- Ist der Weg zur Hütte kinderwagentauglich? -> Kläre ich ab.
+- Ist der Weg zur Hütte kinderwagentauglich? -> Weg ist immer breit, aber stellenweise etwas steil. Mit guten Rädern sollte es gehen, mit einem Buggy könnte es schwierig werden.
 
 
 ## Infrastruktur
