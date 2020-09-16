@@ -1,7 +1,7 @@
 # selital
 Selital,  18.-20. Sep. 2020
 
-Ich freue mich sehr auf unser Weekend. Ich hoffe, dass ihr alle gesund seid und Lust habt in's Selital zu kommen. Wenn jemand nicht mehr hochkommen möchte, bitte meldet euch so bald wie möglich. Sonst gehe ich davon aus, dass wir uns bald sehen.
+Ich freue mich sehr auf unser Weekend -- bald geht's los!
 
 Chris
 
