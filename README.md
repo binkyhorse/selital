@@ -13,12 +13,13 @@ Chris
 - Ich bringe eine Bialetti und gemahlenen Kaffe mit, kann sonst noch jemand, damit wir genug haben? Bitte im Chat melden, nicht dass wir 5 Bialettis haben.
 - Wenn ihr eine Campingdecke habt, um draussen im Gras zu sitzen, könnt ihr sie mitnehmen. Es hat nur wenig Wolldecken (aber Bänke).
 - Duschtüechli bitte mitnehmen.
-- Es hat Hüttenfinken in allen Grössen, die wir brauchen können. Wenn ihr eure eigenen wollt, bitte mitnehmen.
+- Es hat eine grosse Population an Hüttenfinken, die wir brauchen können. Wenn ihr eure eigenen wollt, bitte mitnehmen.
 - Die Matratzen sind nicht angezogen. Ihr könnt entweder nur einen Schlafsack mitnehmen, oder wenn ihr es gemütlicher möchtet, noch Leintücher.
 - Bitte alle für euch genug WC-Rollen mitnehmen, ich bringe noch ein paar Rollen Reserve.
 - Ich bringe Alufolie und Haushaltsfolie.
 - Abwaschmittel und Bürstli sind vorhanden.
 - Carole: wenn Du noch Platz hast, kannst Du deine coole Musikbox mitnehmen?
+- Sämi: Auerhühner und Eichelhäher sind vorhanden.
 
 ## Infos zur Hütte
 http://scchristiania.ch/html/clubhaus.html
