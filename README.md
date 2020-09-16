@@ -7,7 +7,7 @@ Chris
 
 ## Neue Infos vom 16. Sep.
 - Habe Anreise im Detail beschrieben.
-- Es wäre sehr gemütlich, am Samstag eine kleine Wanderung zu machen und an einer Grillstelle eine Rast zu machen und z'Mittag zu essen. Michel, könnest Du bitte so einkaufen für Sa. Mittag? Evtl. auch noch ein paar Würste und Cervelats für den Grill? Wenn Du mit CarSam ankommst, helfen sie sicher einkaufen in Schwarzenburg.
+- Es wäre sehr gemütlich, am Samstag eine kleine Wanderung zu machen und an einer Grillstelle eine Rast zu machen und z'Mittag zu essen. Michel, könnest Du bitte so einkaufen für Sa. Mittag? Evtl. auch noch ein paar Würste/Cervelats/Grillkäse/... für den Grill?
 - Es hat keine Gewürze in der Hütte. Ich bringe Zucker, Salz und Pfeffer. Bitte bringt alles, was euer Essen braucht, selber mit.
 - Teetrinker: bitte Teebeutel mitnehmen.
 - Ich bringe eine Bialetti und gemahlenen Kaffe mit, kann sonst noch jemand, damit wir genug haben? Bitte im Chat melden, nicht dass wir 5 Bialettis haben.
