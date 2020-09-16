@@ -6,12 +6,11 @@ Ich freue mich sehr auf unser Weekend. Ich hoffe, dass ihr alle gesund seid und 
 Chris
 
 ## Neue Infos vom 16. Sep.
-```
 - Habe Anreise im Detail beschrieben.
 - Es wäre sehr gemütlich, am Samstag eine kleine Wanderung zu machen und an einer Grillstelle eine Rast zu machen und z'Mittag zu essen. Michel, könnest Du bitte so einkaufen für Sa. Mittag? Evtl. auch noch ein paar Würste und Cervelats für den Grill? Wenn Du mit CarSam ankommst, helfen sie sicher einkaufen in Schwarzenburg.
-- Es hat keine Gewürze in der Hütte. Ich bringe Zucker, Salz und Pfeffer. Bitte bringt alles, was ihr für euer Essen braucht, selber mit.
+- Es hat keine Gewürze in der Hütte. Ich bringe Zucker, Salz und Pfeffer. Bitte bringt alles, was euer Essen braucht, selber mit.
 - Teetrinker: bitte Teebeutel mitnehmen.
-- Ich bringe eine Bialetti und gemahlenen Kaffe mit, kann sonst noch jemand, damit wir genug haben? Bitte im Chat melden, damit wir nicht 5 Bialettis haben.
+- Ich bringe eine Bialetti und gemahlenen Kaffe mit, kann sonst noch jemand, damit wir genug haben? Bitte im Chat melden, nicht dass wir 5 Bialettis haben.
 - Wenn ihr eine Campingdecke habt, um draussen im Gras zu sitzen, könnt ihr sie mitnehmen. Es hat nur wenig Wolldecken (aber Bänke).
 - Duschtüechli bitte mitnehmen.
 - Es hat Hüttenfinken in allen Grössen, die wir brauchen können. Wenn ihr eure eigenen wollt, bitte mitnehmen.
@@ -19,7 +18,6 @@ Chris
 - Bitte alle für euch genug WC-Rollen mitnehmen, ich bringe noch ein paar Rollen Reserve.
 - Ich bringe Alufolie und Haushaltsfolie.
 - Abwaschmittel und Bürstli sind vorhanden.
-```
 
 ## Infos zur Hütte
 http://scchristiania.ch/html/clubhaus.html
