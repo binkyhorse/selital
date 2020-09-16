@@ -6,6 +6,7 @@ Ich freue mich sehr auf unser Weekend. Ich hoffe, dass ihr alle gesund seid und 
 Chris
 
 ## Neue Infos vom 16. Sep.
+```
 - Habe Anreise im Detail beschrieben.
 - Es wäre sehr gemütlich, am Samstag eine kleine Wanderung zu machen und an einer Grillstelle eine Rast zu machen und z'Mittag zu essen. Michel, könnest Du bitte so einkaufen für Sa. Mittag? Evtl. auch noch ein paar Würste und Cervelats für den Grill? Wenn Du mit CarSam ankommst, helfen sie sicher einkaufen in Schwarzenburg.
 - Es hat keine Gewürze in der Hütte. Ich bringe Zucker, Salz und Pfeffer. Bitte bringt alles, was ihr für euer Essen braucht, selber mit.
@@ -18,7 +19,7 @@ Chris
 - Bitte alle für euch genug WC-Rollen mitnehmen, ich bringe noch ein paar Rollen Reserve.
 - Ich bringe Alufolie und Haushaltsfolie.
 - Abwaschmittel und Bürstli sind vorhanden.
-
+```
 
 ## Infos zur Hütte
 http://scchristiania.ch/html/clubhaus.html
