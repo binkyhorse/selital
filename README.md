@@ -3,7 +3,7 @@
 https://www.scchristiania.ch/unser-clubhaus/
 
 # Anreise
-Chris kann euch von Bahnhof Schwarzenburg abholen mit dem Auto (je bis 4 Personen). Bitte vorher melden, wenn ihr Taxidienst braucht.
+Chris kann euch vom Bahnhof Schwarzenburg abholen mit dem Auto (je bis 4 Personen). Bitte vorher melden, wenn ihr Taxidienst braucht.
 
 | Partei             | Anreise | Abreise
 | -------------------| ---------|-----------
