@@ -33,7 +33,7 @@ Salz, Pfeffer, Öl, Essig muss man alles mitnehmen.
 WC-Papier, Küchentücher
 
 # Bringt jede Partei für sich
-- Ein paar Einfrämkler zum Duschen (3 x 1 Fr. -> beide Duschen ein paar Minuten warm)
+- Ein paar Einfränkler zum Duschen (3 x 1 Fr. -> beide Duschen ein paar Minuten warm)
 - Schlafsack
 - Hüttenfinken (Boden kann kalt sein), warme Socken
 
