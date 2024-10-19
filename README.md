@@ -1,29 +1,29 @@
-# selital
+# Selital
 
-https://www.scchristiania.ch/unser-clubhaus/
+Alle Informationen zur Unterkunft: https://www.scchristiania.ch/unser-clubhaus/
 
 # Anreise
-Chris kann euch vom Bahnhof Schwarzenburg abholen mit dem Auto (je bis 4 Personen). Bitte vorher melden, wenn ihr Taxidienst braucht.
+Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je bis 4 Personen) braucht. Wir sind spätestens ab Freitag, 15 Uhr in der Hütte.
 
-| Partei             | Anreise | Abreise
-| -------------------| ---------|-----------
-| Denise & Chris + 2 | Fr. Nami | So. Mittag 
-|                    |          |
-|                    |          |
-|                    |          |
-|                    |          |
-|                    |          |
+| Partei                    | Anreise  | Abreise
+| --------------------------| ---------|-----------
+| Denise, Chris, Milla, Ari | Fr. Nami | So. Mittag 
+|                           |          |
+|                           |          |
+|                           |          |
+|                           |          |
+|                           |          |
 
 
 # Menuplan
-| Wann     | Verantwortlich | Menu
-| ---------| -------------- |------
-| Fr. Z'N8 |                |
-| Sa. Z'Mo |                |
-| Sa. Z'Mi |                |
-| Sa. Z'N8 |                |
-| So. Z'Mo |                |
-| So. Z'Mi |                |
+| Mahlzeit   | Verantwortlich | Menu
+| -----------| -------------- |------
+| Fr. Abend  | Chris          | 
+| Sa. Morgen |                | ---
+| Sa. Mittag |                |
+| Sa. Abend  |                |
+| So. Morgen |                | ---
+| So. Mittag |                |
 
 
 # Mitbringen Küche
