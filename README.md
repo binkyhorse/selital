@@ -6,13 +6,13 @@ https://www.scchristiania.ch/unser-clubhaus/
 Chris kann euch von Bahnhof Schwarzenburg abholen mit dem Auto (je bis 4 Personen). Bitte vorher melden, wenn ihr Taxidienst braucht.
 
 | Partei             | Anreise | Abreise
-| -------------------| --------|--------
-|Denise & Chris + 2  |         |
-|                    |         |
-|                    |         |
-|                    |         |
-|                    |         |
-|                    |         |
+| -------------------| ---------|-----------
+| Denise & Chris + 2 | Fr. Nami | So. Mittag 
+|                    |          |
+|                    |          |
+|                    |          |
+|                    |          |
+|                    |          |
 
 
 # Menuplan
@@ -26,12 +26,6 @@ Chris kann euch von Bahnhof Schwarzenburg abholen mit dem Auto (je bis 4 Persone
 | So. Z'Mi |                |
 
 
-
-
-
-# Putzen
-Wir müssen die Hütte putzen. Ein WC abschliessen -> weniger Aufwand.
-
 # Mitbringen Küche
 Salz, Pfeffer, Öl, Essig muss man alles mitnehmen.
 
@@ -39,10 +33,12 @@ Salz, Pfeffer, Öl, Essig muss man alles mitnehmen.
 WC-Papier, Küchentücher
 
 # Bringt jede Partei für sich
-- Ein paar Einfrämkler zum Duschen (3 x 1 Fr -> beide Duschen ein paar Minuten warm)
+- Ein paar Einfrämkler zum Duschen (3 x 1 Fr. -> beide Duschen ein paar Minuten warm)
 - Schlafsack
 - Hüttenfinken (Boden kann kalt sein), warme Socken
 
+# Putzen
+Wir müssen die Hütte putzen. Ein WC abschliessen -> weniger Aufwand.
 
 
 
