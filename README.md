@@ -1,4 +1,4 @@
-# Selital
+# Selital (25.-27. Okt.)
 
 Alle Informationen zur Unterkunft: https://www.scchristiania.ch/unser-clubhaus/
 
