@@ -5,14 +5,14 @@ Alle Informationen zur Unterkunft: https://www.scchristiania.ch/unser-clubhaus/
 # Anreise
 Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je bis 4 Personen) braucht. Wir sind spätestens ab Freitag, 15 Uhr in der Hütte.
 
-| Partei                    | Anreise  | Abreise
-| --------------------------| ---------|-----------
-| Denise, Chris, Milla, Ari | Fr. Nami | So. Mittag 
-| Michel                    | Fr. Nami |
-| Patriza, Adi, Ellen, Nico | Fr. z'N8 |
-|                           |          |
-|                           |          |
-|                           |          |
+| Partei                     | Anreise  | Abreise
+| ---------------------------| ---------|-----------
+| Denise, Chris, Milla, Ari  | Fr. Nami | So. Mittag 
+| Michel                     | Fr. Nami |
+| Patrizia, Adi, Ellen, Nico | Fr. z'N8 |
+|                            |          |
+|                            |          |
+|                            |          |
 
 
 # Menuplan
