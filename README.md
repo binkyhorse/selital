@@ -12,7 +12,7 @@ Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je
 | Patrizia, Adi, Ellen, Nico | Fr. z'N8 |
 | Patrizia, Anna, Jan        | Sa. z'Mo |
 | Sonja, Jonas, Mara, Julian | Fr. z'N8 |
-|                            |          |
+| Dani, Lionel               | Fr. Nami |
 
 
 # Menuplan
