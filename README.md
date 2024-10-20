@@ -8,7 +8,7 @@ Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je
 | Partei                    | Anreise  | Abreise
 | --------------------------| ---------|-----------
 | Denise, Chris, Milla, Ari | Fr. Nami | So. Mittag 
-|                           |          |
+| Michel                    | Fr. Nami |
 |                           |          |
 |                           |          |
 |                           |          |
