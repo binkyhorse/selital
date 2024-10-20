@@ -9,7 +9,7 @@ Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je
 | --------------------------| ---------|-----------
 | Denise, Chris, Milla, Ari | Fr. Nami | So. Mittag 
 | Michel                    | Fr. Nami |
-|                           |          |
+| Patriza, Adi, Ellen, Nico | Fr. z'N8 |
 |                           |          |
 |                           |          |
 |                           |          |
@@ -19,10 +19,10 @@ Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je
 | Mahlzeit   | Verantwortlich | Menu
 | -----------| -------------- |------
 | Fr. Abend  | Chris          | 
-| Sa. Morgen |                | ---
+| Sa. Morgen | Adi            | ---
 | Sa. Mittag |                |
 | Sa. Abend  |                |
-| So. Morgen |                | ---
+| So. Morgen | Adi            | ---
 | So. Mittag |                |
 
 
