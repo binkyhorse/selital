@@ -18,7 +18,7 @@ Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je
 # Menuplan
 | Mahlzeit   | Verantwortlich | Menu
 | -----------| -------------- |------
-| Fr. Abend  | Chris          | 
+| Fr. Abend  | Chris          | Orechiette mit Salbei & Haselnüssen / Rahmsösseli mit Schinken für Kids; Trauben und Mandarinen, Most
 | Sa. Morgen | Adi            | ---
 | Sa. Mittag |                |
 | Sa. Abend  | Patrizia S.    |
