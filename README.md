@@ -20,17 +20,17 @@ Bitte vorher bei Chris melden, wenn ihr Taxidienst vom Bahnhof Schwarzenburg (je
 | -----------| -------------- |------
 | Fr. Abend  | Chris          | Orechiette mit Salbei & Haselnüssen / Rahmsösseli mit Schinken für Kids; Trauben und Mandarinen, Most
 | Sa. Morgen | Adi            | ---
-| Sa. Mittag |                |
+| Sa. Mittag | Jonas          |
 | Sa. Abend  | Patrizia S.    |
 | So. Morgen | Adi            | ---
-| So. Mittag |                |
+| So. Mittag | Resten         |
 
 
 # Mitbringen Küche
-Salz, Pfeffer, Öl, Essig muss man alles mitnehmen.
+Salz, Pfeffer, Öl, Essig muss man alles mitnehmen. Bringt Chris.
 
 # Mitbringen allgemein
-WC-Papier, Küchentücher
+WC-Papier, Küchentücher. Bringt Dani.
 
 # Bringt jede Partei für sich
 - Ein paar Einfränkler zum Duschen (3 x 1 Fr. -> beide Duschen ein paar Minuten warm)
